@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kwonyejun1230
-- 👀 I’m interested in 엔트리
+- 👀 I’m interested in entry
 - 🌱 I’m currently learning coding
 - 📫 How to reach me yejoon2570@gmail.com
 - 
